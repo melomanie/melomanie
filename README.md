@@ -2,4 +2,4 @@
   
   ⠀  ⠀    ⠀  .⠀.⠀**read [rentry](https://rentry.co/chanstarterguide) for info**  
   
-  c+h is appreciated, feel free to sit by me <3
+  c+h is appreciated, feel free to sit by me smiles
