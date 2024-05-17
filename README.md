@@ -1,5 +1,6 @@
-  ⠀   ⠀     ⠀   ⠀   ![imagedescription](https://biscuit.crd.co/assets/images/gallery100/ecbca728.gif?v=ca0f6e9d)  
-  ⠀   ⠀read + sign my strawpage :3
+  ⠀   ⠀     ⠀   ⠀   ![imagedescription](https://biscuit.crd.co/assets/images/gallery42/2a371bac.gif?v=ca0f6e9d)  
+  read + sign my strawpage!
+
+  theme changes 24/7....
   
-  might redo my rentry idk.....
   
