@@ -1,3 +1,3 @@
- ⠀  ⠀  ⠀  ⠀  ⠀![image](https://biscuit2.crd.co/assets/images/gallery07/4024b91d.gif?v=417d2f39)
+ ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀![image](https://wilardo.crd.co/assets/images/gallery06/483b446b_original.png?v=618e2dfe)
  
- ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀   ⠀ ⠀  ⠀ — **pls read [strawpage](https://chailatte.straw.page) & sign [ata](https://melomanie.atabook.org/) !**
+ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ꒰ [**strawpage**](https://chailatte.straw.page) ⠀— ⠀[**atabook**](https://melomanie.atabook.org/) ꒱ 
