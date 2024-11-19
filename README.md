@@ -1,3 +1,17 @@
-  ⠀   ⠀   ⠀   ⠀      ![image](https://wilardo.crd.co/assets/images/gallery06/483b446b_original.png?v=618e2dfe)
- 
-   ⠀꒰ [**strawpage**](https://lured.straw.page) ⠀— ⠀[**atabook**](https://melomanie.atabook.org/) ꒱ 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  pages still wip @_@;
+***
+ ⠀ 
+  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀    ⠀  ⠀  ⠀![image](https://i.ibb.co/WG3FZ9x/IMG-1164.jpg)
+   ⠀ ⠀ 
+   
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀**read [rentry](linklink) for info** ⠀ **,,** ⠀ **sign [atabook](https://melomanie.atabook.org/) for a cookie ^_^**
+
+
+
+
+ ⠀ 
+  ⠀  
+⠀ ⠀ 
+⠀ ⠀  ⠀
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ **lovemail:** wip.
+***
