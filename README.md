@@ -12,5 +12,5 @@
   ⠀  
 ⠀ ⠀ 
 ⠀ ⠀  ⠀
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 𐙚⠀**lovemail:** zac, sephy/stella <3 (will be adding more prob)
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  𐙚⠀**lovemail:** zac, sephy/stella <3 (will be adding more prob)
 ***
