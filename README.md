@@ -1,9 +1,9 @@
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![strawb](https://biscuit2.crd.co/assets/images/gallery09/a9c7170c.gif?v=417d2f39)
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀    ⠀ ![strawb](https://biscuit.crd.co/assets/images/gallery85/bedcb2a9.gif?v=cc1c6dfa)
 
-⠀ ⠀ ⠀ ⠀ ![her](https://i.ibb.co/h8J5XjC/Untitled103-20241227205708.png)
+⠀ ⠀ ⠀  ⠀  ⠀![img](https://i.ibb.co/KNLdtcR/IMG-1481.jpg)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀[**r**ead me](https://pyjamaparty.straw.page)⠀ ⠀![pixl](https://wilardo.crd.co/assets/images/gallery04/4641412f_original.gif?v=f2364dd6 )⠀ ⠀[**a**tabook](https://melomanie.atabook.org/)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀[**r**ead me](https://pyjamaparty.straw.page)⠀ ⠀![pixl](https://wilardo.crd.co/assets/images/gallery02/e911d82f_original.gif?v=40493d29)⠀ ⠀[**a**tabook](https://melomanie.atabook.org/)
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀(do not copy my links or ponies ty)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀![strawb](https://biscuit2.crd.co/assets/images/gallery09/a9c7170c.gif?v=417d2f39) 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ![strawb](https://autism.crd.co/assets/images/gallery01/eff3fccd_original.jpg?v=d6547f5c) 
