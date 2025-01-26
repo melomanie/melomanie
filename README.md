@@ -6,4 +6,4 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀(do not copy my links or ponies ty)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ![strawb](https://autism.crd.co/assets/images/gallery01/eff3fccd_original.jpg?v=d6547f5c) 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀![strawb](https://autism.crd.co/assets/images/gallery01/eff3fccd_original.jpg?v=d6547f5c) 
