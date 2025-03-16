@@ -8,7 +8,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![strawb](https://wilardo.crd.co/assets/images/gallery05/685efb3f_original.png?v=9266112b)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![extr](https://wilardo.crd.co/assets/images/gallery08/9b8357cb_original.png?v=9266112b)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![extr](https://wilardo.crd.co/assets/images/gallery08/9b8357cb_original.png?v=9266112b)
 
 ![extr](https://wilardo.crd.co/assets/images/gallery09/4f886c90_original.gif?v=9266112b) ![extr](https://wilardo.crd.co/assets/images/gallery09/c9a8366e_original.gif?v=9266112b) ![extr](https://wilardo.crd.co/assets/images/gallery12/80dc8cb8_original.gif?v=9266112b)
 
