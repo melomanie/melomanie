@@ -2,6 +2,6 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ (do not copy my links or ponies ty)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀![strawb](https://tomomi.neocities.org/divider/div2.gif) 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀![strawb](https://tomomi.neocities.org/divider/div2.gif) 
 
 ⠀ ⠀ ⠀  ⠀  ⠀![img](https://i.ibb.co/bjVS6XWJ/Untitled100-20241224134211.png)
