@@ -1,15 +1,5 @@
-⠀⠀⠀⠀⠀⠀⠀![wng](https://i.imgur.com/MsIQhp9.gif)⠀⠀⠀[**r**ead me](https://pyjamaparty.straw.page)⠀⠀![pixl](https://biscuit.crd.co/assets/images/gallery04/dd30e258.gif?v=cc1c6dfa)⠀⠀[**a**tabook](https://melomanie.atabook.org/)⠀⠀⠀![wng](https://i.imgur.com/bIPPh6P.gif) 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![wng](https://64.media.tumblr.com/0f1262cd4fb67badd427bd96973b4715/eac72a5730000136-8c/s75x75_c1/a7f6b72b1be9517c558bcab62f6a9ed885d205e5.gifv)⠀⠀⠀[**strawpage**](https://paintedpink.straw.page)⠀⠀![pixl](https://supplies.ju.mp/assets/images/tiny1/08de083f_original.gif?v=1c1ba870)⠀⠀[**atabook**](https://melomanie.atabook.org/)⠀⠀⠀![wng](https://64.media.tumblr.com/4c00582022eeede8005c780382829634/eac72a5730000136-61/s75x75_c1/04ab2c1bb889fd912796ea9b7eca836464cb25f3.gifv)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀(do not copy my links or ponies ty)
+⠀⠀⠀⠀⠀⠀![img](https://i.ibb.co/jZk3686s/Untitled114-20250408002953.png)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀![strawb](https://tomomi.neocities.org/divider/div2.gif) 
-
-⠀ ⠀ ⠀  ⠀  ⠀![img](https://i.ibb.co/bjVS6XWJ/Untitled100-20241224134211.png)
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![strawb](https://wilardo.crd.co/assets/images/gallery05/685efb3f_original.png?v=9266112b)
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![extr](https://wilardo.crd.co/assets/images/gallery08/9b8357cb_original.png?v=9266112b)
-
-![extr](https://wilardo.crd.co/assets/images/gallery09/4f886c90_original.gif?v=9266112b) ![extr](https://wilardo.crd.co/assets/images/gallery09/c9a8366e_original.gif?v=9266112b) ![extr](https://wilardo.crd.co/assets/images/gallery12/80dc8cb8_original.gif?v=9266112b)
-
-![extra](https://wilardo.crd.co/assets/images/gallery09/a3f78309_original.gif?v=9266112b) ![extra](https://wilardo.crd.co/assets/images/gallery09/c29b9208_original.gif?v=9266112b) ![extra](https://wilardo.crd.co/assets/images/gallery09/d9ce2b4f_original.gif?v=9266112b)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  (**do not copy my links or ponies ty**)
