@@ -1,14 +1,10 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![counter](https://komarev.com/ghpvc/?username=melomanie&color=grey&label=𝜗𝜚&abbreviated=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![counter](https://komarev.com/ghpvc/?username=melomanie&color=grey&label=𝜗𝜚&abbreviated=true) ⠀![notes](https://wilardo.crd.co/assets/images/gallery27/870025ee_original.gif?v=37f3ab52)
 
-#### ⠀⠀⠀⠀fixing this up at some point sighs......
+⠀
+⠀⠀⠀⠀ ⠀read [**strawpage**](https://paintedpink.straw.page)⠀ 𝄢⠀ sign [**atabook**](https://melomanie.atabook.org/) ⠀![ct](https://wilardo.crd.co/assets/images/gallery28/7e72798e_original.gif?v=37f3ab52)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ![fgfg](https://64.media.tumblr.com/1b805465db90fc5043b9a5ed45059813/09b0656ab042c182-a5/s75x75_c1/a324e9dd897d7c3b2652dcd03d6f64c321462f78.pnj)
-
-⠀⠀
-⠀⠀⠀⠀***c***heck these out⠀![cke](https://wilardo.crd.co/assets/images/gallery20/6d8a252d_original.png?v=736fa498)⠀[**strawpage**](https://paintedpink.straw.page)⠀ ໒꒱⠀ [**atabook**](https://melomanie.atabook.org/)⠀<- sign here :p
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀(**do not copy my links or ponies ty**)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀(**do not copy my links or ponies ty**)
 
 ⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![makame](https://y2k.neocities.org/stamps/tumblr_pcagk9LdEg1wpplaao4_100.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![domo](https://wilardo.crd.co/assets/images/gallery08/b720a305_original.png?v=37f3ab52)
