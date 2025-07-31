@@ -9,4 +9,4 @@
   
  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀ $\color{#1C398E}\large{\textbf{メ ⠀do not copy my links or ponies ty}}$
 
- ⠀  ⠀  ⠀  ⠀  ⠀ ![ribbon](https://i.ibb.co/Mxr5vGr5/Magic-Eraser-250731-013929.png)
+ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ![ribbon](https://i.ibb.co/Mxr5vGr5/Magic-Eraser-250731-013929.png)
