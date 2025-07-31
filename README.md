@@ -2,7 +2,7 @@
 
  ⠀  ⠀  ⠀ ![image](https://i.ibb.co/5XpXYDWD/IMG-2001.jpg)
 
- ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ $\color{#193CB8}{\textbf{꒰ა ⠀read}}$ [*strawpage*](https://paintedpink.straw.page)⠀ ⟢⠀ $\color{#C6D2FF}{\textbf{sign}}$ [*atabook*](https://melomanie.atabook.org/)⠀ $\color{#C6D2FF}{\textbf{໒꒱}}$
+ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  $\color{#193CB8}{\textbf{꒰ა ⠀read}}$ [*strawpage*](https://paintedpink.straw.page)⠀ ⟢⠀ $\color{#C6D2FF}{\textbf{sign}}$ [*atabook*](https://melomanie.atabook.org/)⠀ $\color{#C6D2FF}{\textbf{໒꒱}}$
 
  ⠀ 
  ⠀ ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ![stamp](https://wilardo.crd.co/assets/images/gallery16/aa2ea780_original.png?v=c0a0770b)
