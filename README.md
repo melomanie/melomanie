@@ -1,5 +1,12 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀    ⠀  ⠀  ⠀  ⠀  ⠀ ![counter](https://komarev.com/ghpvc/?username=melomanie&color=grey&label=𝜗ৎ&abbreviated=true) ⠀![notes](https://wilardo.crd.co/assets/images/gallery27/870025ee_original.gif?v=37f3ab52)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀  ⠀  ![counter](https://komarev.com/ghpvc/?username=melomanie&color=grey&label=𝜗𝜚&abbreviated=true) ⠀![notes](https://wilardo.crd.co/assets/images/gallery27/870025ee_original.gif?v=37f3ab52)
 
- ⠀  ⠀  ⠀ 
 
- ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀⠀⠀⠀redoing profile,  see you soon ![](https://wilardo.crd.co/assets/images/gallery04/c98f1bbb_original.gif?v=a70fe630)
+ ⠀ ⠀⠀⠀![img](https://i.ibb.co/VcMWcNhk/Untitled131-20250911202632.png) ⠀  ⠀ 
+
+⠀⠀⠀![strawaddlink](https://i.ibb.co/FqK9Nf2R/Untitled132-20250911201641.png)![rentryaddlink](https://i.ibb.co/gLtVZs2T/Untitled132-20250911202011.png)
+ 
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://melomanie.atabook.org/">
+      <img src="https://i.ibb.co/FTQP3DZ/Untitled132-20250911202054.png">
+    </a>
+    
+$\color{#e6bab8}\large{\textbf{𝜗𝜚⠀(straw and rentry is a wip)⠀do not copy my links or ponies ty}}$
