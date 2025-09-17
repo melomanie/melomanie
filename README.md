@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀  ⠀  ![counter](https://komarev.com/ghpvc/?username=melomanie&color=grey&label=𝜗𝜚&abbreviated=true) ⠀![notes](https://wilardo.crd.co/assets/images/gallery27/870025ee_original.gif?v=37f3ab52)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀  ⠀  ![counter](https://komarev.com/ghpvc/?username=melomanie&color=grey&label=𝜗𝜚&abbreviated=false) ⠀![notes](https://wilardo.crd.co/assets/images/gallery27/870025ee_original.gif?v=37f3ab52)
 
 
  ⠀ ⠀⠀⠀![img](https://i.ibb.co/VcMWcNhk/Untitled131-20250911202632.png) ⠀  ⠀ 
